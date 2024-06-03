@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **subhradeeproy2189@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1rlaUvEl6PgihIcvrFdSiEtTHJ9oRnS83/view?usp=sharing](https://drive.google.com/file/d/1rlaUvEl6PgihIcvrFdSiEtTHJ9oRnS83/view?usp=sharing)
+- 📄 Know about my experiences 
 - ⚡ Fun fact **The best advice I ever received was #Change your thinking, change your life.#**
 - <img align="left" width="40" src ="https://user-images.githubusercontent.com/74038190/241763891-7bb1e704-6026-48f9-8435-2f4d40101348.gif">
 - <h3 align="left">Connect with me:</h3>
